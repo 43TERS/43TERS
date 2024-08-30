@@ -8,4 +8,10 @@ Meu nome é **Thainá**
 
   **### Você entra em contato comigo** 📫
 
-  
+  00001126798034SP@al.educacao.sp.gov.br
+
+
+
+![](https://media.tenor.com/zVvViQKqa0MAAAAi/psybirdb1oom.gif)
+
+
